@@ -77,7 +77,7 @@ I’m always open to connect, collaborate or share ideas.
 
 - LinkedIn: [Your Name](https://www.linkedin.com/in/yourname)
 - Twitter: [@yourhandle](https://twitter.com/yourhandle)
-- Email: [your@email.com](mailto:your@email.com)
+- Email: [Johnsonngugi5@gmail.com](mailto:your@email.com)
 
 ---
 
